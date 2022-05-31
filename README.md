@@ -1,3 +1,6 @@
 # [Mshindi Creations](https://mshindi-creations.com/)
 
-Pioneering edge software solutions 🚀🚀🚀
+- A Software development platform 🚀
+- Pioneering edge software solutions and 🚀
+- Designing success through creative web design  🚀
+
